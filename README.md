@@ -1,1 +1,3 @@
-# QuanLySucKhoe
+HỌ VÀ TÊN SINH VIÊN: TRẦN THỊ MỸ DUYÊN
+LỚP: 12_ĐH_CNPM1
+MSSV: 1250080042
